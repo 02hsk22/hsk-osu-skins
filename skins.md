@@ -13,3 +13,11 @@ This is where I upload all my stuff I guess
 # [-xaver minimal](https://arekk.s-ul.eu/sK79zmU1)
 ![](https://arekk.s-ul.eu/KWyYve5r)
 
+# [- alex drt](https://arekk.s-ul.eu/y4rUBtyZ)
+![](https://arekk.s-ul.eu/d6ncj4Fq)
+
+# [seia mix](https://arekk.s-ul.eu/GMCpHxV3)
+![](https://arekk.s-ul.eu/DeIWlm4d)
+
+# [enriarstia2](https://arekk.s-ul.eu/bWa0vKfr)
+![](https://arekk.s-ul.eu/LuwQLSVM)
