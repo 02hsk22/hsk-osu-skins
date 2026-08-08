@@ -1,6 +1,9 @@
 # hsk's osu! skins
 This is where I upload all my stuff I guess
 
+# [- {S} OFF SCRIPT](https://arekk.s-ul.eu/IdQNO2oR)
+![](https://arekk.s-ul.eu/6kLQepdr)
+
 # [MonkoGlassTest maliszewski](https://arekk.s-ul.eu/PHXXiurW)
 ![](https://arekk.s-ul.eu/sCN0ViAS)
 
@@ -21,3 +24,12 @@ This is where I upload all my stuff I guess
 
 # [enriarstia2](https://arekk.s-ul.eu/bWa0vKfr)
 ![](https://arekk.s-ul.eu/LuwQLSVM)
+
+# [#azer8dusk](https://arekk.s-ul.eu/zh949VDv)
+![](https://arekk.s-ul.eu/ubQHq6Dz)
+
+# [JURME REAL MAIN SKIN!!!](https://arekk.s-ul.eu/zmkXm8f3)
+![](https://arekk.s-ul.eu/5GpVJj3y)
+
+# [JURME REAL MAIN MAPPING SKIN!!!](https://arekk.s-ul.eu/P0q2bIoS)
+![](https://arekk.s-ul.eu/EaQp8y7x)
