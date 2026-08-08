@@ -24,7 +24,7 @@ This is where I upload all my stuff I guess
 # [seia mix](https://arekk.s-ul.eu/GMCpHxV3)
 ![](https://arekk.s-ul.eu/DeIWlm4d)
 
-# [enriarstia2](https://arekk.s-ul.eu/bWa0vKfr)
+# [enriaristia2](https://arekk.s-ul.eu/bWa0vKfr)
 ![](https://arekk.s-ul.eu/LuwQLSVM)
 
 # [#azer8dusk](https://arekk.s-ul.eu/zh949VDv)
