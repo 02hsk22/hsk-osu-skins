@@ -1,6 +1,8 @@
 # hsk's osu! skins
 This is where I upload all my stuff I guess
 
+# [MY OLD SKINS FOLDER!!](https://drive.google.com/drive/folders/1rjHDVxUFcD40EJKZmVmEOIJFHxULX0Kd?usp=sharing)
+
 # [- {S} OFF SCRIPT](https://arekk.s-ul.eu/IdQNO2oR)
 ![](https://arekk.s-ul.eu/6kLQepdr)
 
